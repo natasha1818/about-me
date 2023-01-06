@@ -1,6 +1,6 @@
 # Колесникова Наталья Александровна
 
-![Колесникова Н.А.] (https://cloud.mail.ru/public/wqvu/xs5HYR7Cp)
+![foto me](https://user-images.githubusercontent.com/121751064/210938698-3439a2bd-77a2-452b-830b-20bd2424070c.jpg)
 
 Дата рождения:18.01.1976 г.
 
